@@ -1,2 +1,0 @@
-# Jcvsublimacionydiseno
-Tienda
